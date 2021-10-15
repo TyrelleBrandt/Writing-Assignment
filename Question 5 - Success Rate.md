@@ -1,0 +1,5 @@
+Succeed or “Succeed”
+
+Besides experience in this course or field of work, what do we have going for each other? Everyone starts on the ground like how babies crawl before they walk and eventually run. This is the mindset of every beginner in any field, “it is not about how you start the race but how you finish it”. A quote used for generations to prepare for stumbles and disappoints but to remember about the dirty you must dust off and keep going.
+
+We were all presented with the tools and the knowledge to succeed by Umuzi. This gives me a fighting chance, my ability to adapt and persevere builds my foundation. I studied business communication and have tested my soft people skills on numerous occasions. The steadfast attitude that I adopted at my workplace will set me apart from the “I think I can” and “I know I will” stigma.
